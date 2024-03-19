@@ -12,7 +12,7 @@
 
 ## Contact Me
 
-📫 You can reach me via email at [jenilkunadiyadev@gmail.com] or connect with me on [LinkedIn](https://www.linkedin.com/in/jenil-kunadiya/).
+📫 You can reach me via email at jenilkunadiyadev@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/jenil-kunadiya/).
 
 😄 Pronouns: He/Him
 
